@@ -34,9 +34,5 @@ Feel free to reach out to me via email at juliekoonkoon@gmail.com. I'm always op
 You can also find me on: LinkedIn: Julie Koon Koon
 
 
-⚡ Fun Fact
-
-As a child, I always dreamt of marrying a prince and becoming a princess. Coincidentally, I married someone who name is Prince.
-
 Thank you for visiting my profile! I look forward to connecting with fellow developers/analysts and working on exciting projects together.
 
